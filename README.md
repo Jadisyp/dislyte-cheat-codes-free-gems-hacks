@@ -1,2 +1,5 @@
-# dislyte-cheat-codes-free-gems-hacks
-Dislyte Cheat Codes unlimited Free gems Hacks tutorial Android iOS free 10 summons!
+# Dislyte Cheat Codes unlimited Free gems Hacks tutorial
+
+Dislyte Cheat Codes unlimited Free gems Hacks tutorial Android iOS free 10 summons - The Hero Arena is where you face other players' teams. The first two times of every day are free. According to the score difference between you and your opponent, winning will win you ladder points, while losing will lose some points. A season in the arena lasts for two weeks. At the end of each season, players participating in the game will be rewarded according to their overall ranking, and players will also receive diamonds every day according to their ranking. The bounty committee is a place where your troops and friends perform tasks for you. The task is completed automatically. When your heroes perform the task, you can still use them to clear the dungeon. You just need to select the required heroes, and the game will automatically handle all other things. There are no other specific provisions in the king's building. Dislyte cheats that work is just a collection of additional dungeons. These levels expand linearly, so if you're in trouble, just continue the game and once you can easily clear it, you can go back to the game.
+
+<a href="https://growhunt.top/dislyte/">view here</a>
